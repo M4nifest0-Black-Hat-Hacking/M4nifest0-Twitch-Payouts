@@ -15,9 +15,20 @@
 -📌 Because websites like Twitch Tracker keep tabs on the number of subscribers the platform’s top streamers have, many viewers have a general idea of how much streamers make in that regard.
 
 -📌 Perhaps the biggest information to gather from the leaks is that individuals who are privy to how much streamers might get in ad revenue and bit donations might be able to then use some math and deductive reasoning to figure out how much money they make per subscription.
+
 ----------------------
 
-# Download [M4nifest0](https://t.me/M4nifest0_bot?start=_EZLLOWSBF).
+# Download [Part1](https://t.me/M4nifest0_bot?start=_PLAERKMFR).
+
+# Download [Part2](https://t.me/M4nifest0_bot?start=_ZMTXMXUN).
+
+# Download [Part3](https://t.me/M4nifest0_bot?start=_GHHLKQLXX).
+
+# Download [Part4](https://t.me/M4nifest0_bot?start=_BOLDKHRFO).
+
+# Download [Part5](https://t.me/M4nifest0_bot?start=_KLLQWJNHE).
+
+# Download [Part6](https://t.me/M4nifest0_bot?start=_LTUJBWIF).
 
 ----------------------
 # 👊 M4nifest0 Black Hat Hacking Team™💪
